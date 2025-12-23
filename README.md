@@ -2,7 +2,7 @@
 
 **Ngày:** 22 tháng 12, 2025  
 **Người thực hiện:** Tuanchau  
-**Loại tài liệu:** Báo cáo tóm tắt cho nhà đầu tư
+**Loại tài liệu:** Báo cáo tóm tắt
 
 ---
 
